@@ -1,3 +1,3 @@
-# Geethika Sureddy's website
+# ARCHERY360
 
 welcome to my website
